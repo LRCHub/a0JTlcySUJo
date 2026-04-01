@@ -1,0 +1,58 @@
+# LANY – you!
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+(One, two)
+(One, two, three)
+Like water in the desert
+Impossible to find
+You found me when I was broken
+Put me back together,
+gave me life
+Like a flower in the concrete
+So beautiful and rare
+You gave me hope
+when I was empty
+Walked me through the fire,
+you were there
+You're the sun to the moon
+You're my ocean, painted blue
+You, I'm nothing without you
+(Without you, without you)
+Like an angel in a nightmare
+You opened up my eyes
+Looking in all the wrong places
+You're the one
+I needed this whole time
+You're the sun to the moon
+You're my ocean, painted blue
+You, I'm nothing without you
+(Without you, without you)
+You're the light in the dark
+You're the arrow
+through my heart
+You, I'm nothing without you
+(Oh, oh) I'm nothing without you
+(Oh, oh) I'm nothing without you
+(Oh, oh) I'm nothing without you
+You, I'm nothing without you
+I'm nothing without you
+I'm nothing without you
+I'm nothing without you
+You're the air in my lungs
+You're the veins to my blood
+Yeah, you,
+I'm nothing without you
+You're the sun to the moon
+You're my ocean, painted blue
+You, I'm nothing without you
+(Without you, without you)
+You're the light in the dark
+You're the arrow
+through my heart
+You, I'm nothing without you
+(Oh, oh) I'm nothing without you
+(Oh, oh) I'm nothing without you
+(Oh, oh) I'm nothing without you
+```
